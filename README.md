@@ -1,7 +1,7 @@
 
-![1](https://github.com/varun-a50/HomeBroker/assets/56962637/2630c07d-1bf7-4fdd-bc2e-0fba42389847)
+![1](https://github.com/varun-a50/HomeBroker/assets/56962637/2630c07d-1bf7-4fdd-bc2e-0fba42389847)    ![2](https://github.com/varun-a50/HomeBroker/assets/56962637/ab28bf28-f9de-44b6-9e87-fafc0294367b)
 
-![2](https://github.com/varun-a50/HomeBroker/assets/56962637/ab28bf28-f9de-44b6-9e87-fafc0294367b)
+
 
 ![3](https://github.com/varun-a50/HomeBroker/assets/56962637/1df593ac-729d-40a8-986e-79965f7e8833)
 
